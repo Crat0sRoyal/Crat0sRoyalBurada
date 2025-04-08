@@ -7,6 +7,6 @@
 </a>
 <div class="description">
 
-<img src="https://r.resimlink.com/aRg7yz1NbS.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<img src="https://r.resimlink.com/aRg7yz1NbS.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a><img src="https://r.resimlink.com/aRg7yz1NbS.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
  
 # <p>CratosRoyal, her geçen gün büyüyen kullanıcı kitlesi ile sektördeki yerini sağlamlaştırıyor. 🌟 Eğlenceli ve kazanç dolu bir bahis deneyimi için CratosRoyal’in güncel giriş adresini takip edin ve avantajlardan faydalanın!</p>
